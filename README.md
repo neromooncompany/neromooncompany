@@ -25,6 +25,6 @@ Telegram: https://t.me/werto_ai · X: https://x.com/werto_ai · Instagram: https
 - Telegram: https://t.me/neromoon_company
 - X: https://x.com/neromoon_corp
 - Instagram: https://www.instagram.com/neromoon_company
-- LinkedIn: https://www.linkedin.com/in/neromoon-industry-002993449
+- LinkedIn: https://www.linkedin.com/company/neromoon
 
 © 2026 Neromoon
